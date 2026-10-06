@@ -2,7 +2,7 @@
 
 ¿Tienes alguna duda, has encontrado un error o quieres sugerir una mejora?
 
-Escríbeme a **jcpolomestre@icloud.com** y te responderé lo antes posible.
+Escríbeme a **cromostracker@icloud.com** y te responderé lo antes posible.
 
 ## Preguntas frecuentes
 
